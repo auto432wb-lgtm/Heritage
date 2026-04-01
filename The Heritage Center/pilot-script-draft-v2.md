@@ -75,7 +75,7 @@ No, no — we are a corrective intellectual tether taskforce.
 We a internet cult.
 
 **MILD INDIAN**  
-Technically we teach genealogy.
+Technically I teach genealogy.
 
 **OLMEC DONALD**  
 We are a remembering mechanism.
@@ -87,7 +87,7 @@ None of that works.
 That’s because you keep thinking like a pale face.
 
 **A1**  
-Someone has to think like him. That is what accreditation is.
+Chief he got everything he know from niccas. My brother we just need accreditation.
 
 Silence.
 
@@ -108,7 +108,7 @@ Language.
 A beat.
 
 **A1 (CONT'D)**  
-If the packet is clean, they are forced to respect the vision.
+If the packets clean, they gone be forced to respect the vision.
 
 Another beat.
 
@@ -118,19 +118,19 @@ Now whether the vision is technically finished — that’s not the same convers
 ### INTERVIEW — CHIEF HOLLY BEY
 
 **CHIEF HOLLY BEY**  
-A1 thinks institutions are built by approval.  
-That’s because A1 still thinks rejection is proof you should become cleaner.
+A1 thinks I'm looking for some foreigners approval.  
+That’s why he could never be the Goat.
 
 He leans forward.
 
 **CHIEF HOLLY BEY (CONT'D)**  
-Rejection is usually proof you’re saying something first.
+Rejection is usually proof you’re saying something these pale faces been trying to hide
 
 ### INTERVIEW — MR. DENSE EL
 
 **MR. DENSE EL**  
-The problem with this place is not intelligence.  
-It’s tone.
+The problem with this place is not intelligence. They cant read the room 
+These niccas still thinking we belive in this shit. Im just trying get youtube views
 
 A beat.
 
@@ -140,18 +140,19 @@ Too many people in here want to sound acceptable before they sound true.
 ### INTERVIEW — ROOTWORDS
 
 **ROOTWORDS**  
-You can tell when a room is losing the youth because everybody starts saying words like institution and framework and pathway.
+I just need 30 seconds, but everytime i start talking here come Chief or Mild Indian got to cut me off like a real tether loving bitch
+but i digress,
 
 He shrugs.
 
 **ROOTWORDS (CONT'D)**  
-Nobody under forty want a pathway. They want a clip.
+Nobody under forty want a pathway chief, i say we just get back to the information, but i digress
 
 ### INTERVIEW — MILD INDIAN
 
 **MILD INDIAN**  
-I’m not disorganized.  
-I’m just working across too many channels of truth at one time.
+I’m not afraid to take a debate or present my information.  
+I’m just working across too many channels of truth at one time to deal with the low vibrationals.
 
 He looks down.
 
@@ -230,48 +231,48 @@ Holly Bey is ready to overrule the language.
 Mild Indian has too many papers.  
 Olmec looks like he is waiting for the room to become symbolic.
 
-**A1**  
+**Mr. Dense EL**  
 The Genealogy Conference has to sound real enough for donors and clean enough for accreditation review.
 
-**MR. DENSE EL**  
+**Chief**  
 It is real.
 
 **A1**  
-It needs to sound real to people who wear blazers.
+Well it needs to sound real to people who wear blazers.
 
 **ROOTWORDS**  
-Then say symposium.
+I just need 30 seconds, but i digress.
 
 **MR. DENSE EL**  
-No. Summit.
+No. Delineation.
 
 **CHIEF HOLLY BEY**  
-No. Convocation.
+No. Aboriginal.
 
 **MILD INDIAN**  
-I thought it was a lineage.
+I thought it was about lineage.
 
-Everyone turns.
+
 
 **MILD INDIAN (CONT'D)**  
 That’s what the flyer says.
 
-### INTERVIEW — ROOTWORDS
-
-**ROOTWORDS**  
-People keep acting like promotion is corruption.  
-It’s not corruption if the thing exists.
+### INTERVIEW — Dense El
+    
+**EL**  
+People be acting like promotion is a problem.  
+It’s not gone grow if niccas keep saying the same shit for 5 years.
 
 A beat.
 
 **ROOTWORDS (CONT'D)**  
-And if the thing don’t fully exist yet, promotion can help summon it.
+And if we dont tether ourselves to them fake ass homeless people livig in tents. but i digress
 
 ### INTERVIEW — A1
 
 **A1**  
-This is the problem with Rootwords.  
-He thinks audience creation and institutional construction are interchangeable.
+This is the problem with Dense El.  
+He think the audience creation and The Heritage Center construction are interchangeable.
 
 A beat.
 
@@ -307,7 +308,7 @@ Premium access.
 Premium access to what?
 
 **MR. DENSE EL**  
-Earlier knowledge.
+Goundbreaking, life changing knowledge.
 
 Mild Indian drops a stack of papers onto the table.
 
@@ -325,23 +326,23 @@ The stack includes:
 ### INTERVIEW — MILD INDIAN
 
 **MILD INDIAN**  
-The problem with this Center is nobody respects raw evidence.
+The problem with this Center is nobody respects real evidence.
 
 A beat.
 
 **MILD INDIAN (CONT'D)**  
-They only respect evidence after somebody else organizes it and misnames it.
-
+They only respect evidence if somebody else organizes it.
+Cause they aint really tied to the land like me
 ### INTERVIEW — MR. DENSE EL
 
 **MR. DENSE EL**  
 Mild Indian got passion.  
-He do not got sequence.
+But lets be honest he a little slow
 
 A beat.
 
 **MR. DENSE EL (CONT'D)**  
-That’s why he keep arriving at the truth like luggage.
+That’s why he keep walking around with them damn documents like luggage.
 
 ### INTERVIEW — OLMEC DONALD
 
@@ -368,7 +369,7 @@ Nobody answers immediately.
 
 **A1**  
 The students need sequence.  
-They need modules.  
+They need cross-refrences.  
 They need a curriculum that can survive contact with daylight.
 
 He tightens his jaw.
@@ -379,36 +380,37 @@ You cannot keep calling every emotional breakthrough a course.
 ### INTERVIEW — CHIEF HOLLY BEY
 
 **CHIEF HOLLY BEY**  
-The students do not come here for modules.  
-They come here because something in them already knows the official story is sick.
+The students do not come here for sequence.  
+They come here because they already followed Doctor York.
+We just got top stick to the dam script
 
 A beat.
 
 **CHIEF HOLLY BEY (CONT'D)**  
 Our job is not to make them comfortable.  
-Our job is to wake up what they already suspect.
+Our job is to tell them what they already suspect.
 
 ### INTERVIEW — MR. DENSE EL
 
 **MR. DENSE EL**  
 Students say they want information.  
-What they really want is confidence.
+What they really want is confirmation.
 
 He leans in.
 
 **MR. DENSE EL (CONT'D)**  
-Information without posture just create another scared researcher.
+And im trying to go viral.
 
 ### INTERVIEW — ROOTWORDS
 
 **ROOTWORDS**  
-If a student can’t explain what you taught in a clip, you probably taught it like a hostage note.
+If a student can’t explain what you taught in a clip, you probably not a good teacher bro.
 
 ### INTERVIEW — MILD INDIAN
 
 **MILD INDIAN**  
 Students appreciate depth.  
-The issue is they be wanting depth pre-sorted.
+The issue these other niccas need to do they genealogy
 
 ### INTERVIEW — OLMEC DONALD
 
@@ -434,10 +436,10 @@ Holly Bey watches everybody like a founder assessing succession.
 
 **A1**  
 Chief Holly Bey thinks legacy is leadership.  
-Dense El thinks volume is leadership.  
-Rootwords thinks reach is leadership.  
-Mild thinks possession is leadership.  
-Olmec thinks distance from specificity is leadership.
+Dense El thinks views is leadership.  
+Rootwords think ancient structures is leadership.  
+Mild thinks mongoloid paperwork is leadership.  
+Olmec think the ancestors is leadership.
 
 A beat.
 
@@ -452,11 +454,11 @@ A1 is the kind of man who would laminate a prophecy.
 ### INTERVIEW — MR. DENSE EL
 
 **MR. DENSE EL**  
-Chief Holly Bey built the room.  
+Chief  built the room.  
 A1 built the folders.  
-Rootwords built the clips.  
-Olmec built the incense.  
-Mild built a pile.
+Rootwords is ceazy.  
+Olmec old and confused.  
+Mild he might really be slow. like all jokes aside.
 
 A beat.
 
@@ -467,10 +469,10 @@ And I’m the only one in here who can actually hold a crowd.
 
 **ROOTWORDS**  
 Dense El think everything is a showdown.  
-A1 think everything is a packet.  
-Holly think everything is legacy.  
-Olmec think everything is cosmic.  
-Mild think everything is in the bag somewhere.
+A1 think everything is about cross refrenceing.  
+Chief think everything is aboriginal.  
+Olmec think everything is cosmic and weird.  
+Mild think everything leads back to some tent living primitive ass people.
 
 He smiles.
 
@@ -480,15 +482,15 @@ And all of them need me more than they admit.
 ### INTERVIEW — MILD INDIAN
 
 **MILD INDIAN**  
-A1 acts like paper is order.  
-Dense El acts like yelling is sequence.  
-Rootwords acts like a flyer is reality.  
-Olmec acts like smoke is evidence.
+A1 acts like he somebody leader. He got everything he know from Dane Cap Away and my daddy Top Cat  
+Dense El acts like the aboriginal beyonce or something.  
+Rootwords need to take some melatonin and take a nap
+Olmec, i aint got no problems with the old head.
 
 A beat.
 
 **MILD INDIAN (CONT'D)**  
-Chief Holly Bey honestly be the calmest one.
+Chief probably the most pseduo though
 
 ### INTERVIEW — OLMEC DONALD
 
@@ -535,7 +537,7 @@ Directness is overrated by people who think authority comes from neatness.
 ### INTERVIEW — MR. DENSE EL
 
 **MR. DENSE EL**  
-A meeting is just a polite fight with paper.
+A meeting is just a parole hearing with glasses.
 
 ### INTERVIEW — ROOTWORDS
 
@@ -582,11 +584,11 @@ If this place ever becomes too legitimate, it will probably stop being useful.
 ### INTERVIEW — MR. DENSE EL
 
 **MR. DENSE EL**  
-A room don’t need peace to have power.
+These old niccas in the way, I'm trying to get a million views
 
-### INTERVIEW — ROOTWORDS
+### INTERVIEW — EL
 
-**ROOTWORDS**  
+**REL**  
 Honestly?  
 If we cut the right trailer out of today, the conference might sell out.
 
